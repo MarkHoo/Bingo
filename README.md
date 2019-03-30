@@ -1,2 +1,2 @@
 # Bingo
-# Come soon
+# Come soon ...
